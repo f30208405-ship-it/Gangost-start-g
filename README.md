@@ -1,0 +1,2 @@
+# Gangost-start-g
+डिजीज
